@@ -1,1 +1,1 @@
-***cv project
+ttps://Gitvasya96.github.io/rsschool-cv/CV
